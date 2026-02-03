@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Телеграм: @nghtchc, почта student_lina@inbox.ru**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
